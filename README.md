@@ -1,5 +1,5 @@
 "Because we don't know anyone who has made a career out of sports betting.
-Because it's never the biggest soccer connoisseur who wins the bets
+Because it's never the biggest soccer connoisseur who wins the bets.
 Trust chance, it's better than you".
 Paul the Octopus - 2010
 
