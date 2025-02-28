@@ -1,6 +1,6 @@
-"Because we don't know anyone who has made a career out of sports betting.
-Because it's never the biggest soccer connoisseur who wins the bets
-Trust chance, it's better than you".
+"Because we don't know anyone who has made a career out of sports betting./n
+Because it's never the biggest soccer connoisseur who wins the bets/n
+Trust chance, it's better than you"./n
 Paul the Octopus - 2010
 
 Score generator for MonPetitProno website
